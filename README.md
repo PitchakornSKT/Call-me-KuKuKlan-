@@ -1,4 +1,3 @@
 # Call-me-KuKuKlan-
 but my enemy call me namor
-
-it's new my name is kukulkan 
+this my correct name is kukulkan 
